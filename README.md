@@ -1,1 +1,1 @@
-Repositório dedicado a atividades da UC de Sistemas-Automatizados. USJT-BUtantã
+Repositório dedicado a atividades da UC de Sistemas-Automatizados. USJT-Butantã
